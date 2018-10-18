@@ -1,6 +1,6 @@
 ## Thanks for stopping by!
 
-You can follow me on [Twitter](https://twitter.com/ChicagoGupta) to see what I'm up to in real time. Or you can subscribe to my e-mail [newsletter](https://tinyletter.com/chicagogupta) for more infrequent updates... Below you'll find a list of my current projects, and links to various resources and job openings.
+You can follow me on [Twitter](https://twitter.com/ChicagoGupta) to see what I'm up to in real time. Or you can subscribe to my e-mail [newsletter](https://tinyletter.com/chicagogupta) for quarterly updates. Below you'll find a list of my current projects, and links to various resources and job openings.
 
 ### NoD Coworking
 
