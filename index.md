@@ -8,4 +8,8 @@ I am the Founder of NoD Coworking which is based in Dallas, Texas. You can usual
 
 ### Love Thy Neighbor
 
-I started an international peace project called Love Thy Neighbor where school children exchange letters of peace and friendship with school children in a neighboring country.
+I started an international peace project called Love Thy Neighbor where school children exchange letters of peace and friendship with school children in a neighboring country. The project began with India and Pakistan in mind, and then expanded into several other pairs of neighboring countries (United States and Mexico, Thailand and Cambodia).
+
+### Percussion
+
+I have been studying percussion since 2001. I studied marching percussion and latin percussion under Josh Schusterman and studied jazz drumset under Brett Deptula. I co-own a recording studio in Dallas' Deep Ellum neighborhood where I record drum tracks for professional musicians and work on experimental projects with local musicians ranging from hip-hop to alternative rock. In the summer and fall seasons I serve as a guest instructor for the South Oak Cliff High School Drumline.
