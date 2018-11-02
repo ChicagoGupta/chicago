@@ -8,7 +8,7 @@ I am the Founder of NoD Coworking which is based in Dallas, Texas. You can usual
 
 ### Love Thy Neighbor
 
-I started an international peace project called Love Thy Neighbor where school children exchange letters of peace and friendship with school children in a neighboring country. The project began with India and Pakistan in mind, and then expanded into several other pairs of neighboring countries (United States and Mexico, Thailand and Cambodia).
+I started an international peace project called Love Thy Neighbor where school children exchange letters of peace and friendship with school children in a neighboring country. The project began with India and Pakistan in mind, and then expanded into several other pairs of neighboring countries (United States and Mexico, Thailand and Cambodia, Italy and Switzerland, France and Germany, Denmark and Sweden, Israel and Palestine, Russia and China, Nicaragua and Honduras, Argentina and Chile).
 
 ### Percussion
 
