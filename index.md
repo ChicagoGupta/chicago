@@ -12,4 +12,4 @@ I started an international peace project called Love Thy Neighbor where school c
 
 ### NoD Coworking
 
-I am the Founder of NoD Coworking which is a coworking space for indie game developers based in Dallas, Texas. 
+I am the founder of NoD Coworking which is a coworking space for indie game developers based in Dallas, Texas. 
