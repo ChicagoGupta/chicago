@@ -14,8 +14,4 @@ I am the 2019-2020 President of the Northwestern Alumni Club of Dallas - Fort Wo
 
 ### Love Thy Neighbor
 
-I started an international peace project called Love Thy Neighbor where school children exchange handwritten letters with school children in a neighboring country. The project began in 2019 with Walnut School (Pune, India) and NJV School (Karachi, Pakistan). 
-
-### NoD Coworking
-
-I am the founder of NoD Coworking which is a coworking space for indie game developers based in Dallas, Texas (opened in 2014).
+I started an international peace project called Love Thy Neighbor where school children exchange handwritten letters with school children in a neighboring country. [The project](https://www.facebook.com/walnutedu/posts/2436345716437948) began in 2019 with Walnut School (Pune, India) and NJV School (Karachi, Pakistan). 
