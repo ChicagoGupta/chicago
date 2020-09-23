@@ -1,16 +1,29 @@
-## Drummer
+## Traveling Music Teacher & Journalist
 
-You can follow me on [Insta](https://instagram.com/ChicagoGupta) to see what I'm up to in real time. Below you'll find a list of my current projects, and links to various resources.
+You can follow me on [Insta](https://instagram.com/ChicagoGupta) to see what I'm up to in real time. Below you'll find a list of my current projects, links to various resources, and photos of #ghattoo. Please let me know about any broken links or things that need to be updated here! (I am at a computer only once every few months)
 
-Latest Work: [Vorella](https://open.spotify.com/album/1MkeaB9qkhdrWs0aXWvwXJ)
+Latest Music Work: [#NashvilleRecoveryTour](https://www.instagram.com/p/CDmrIOYgICQ/)
+Latest Article: [#WeTheTeachers](https://dallasinnovates.com/voices-chirag-gupta-reinventing-the-k-12-classroom-in-2020/)
+
+### As Seen/Heard In/On...
+[Rudimental Drummers](https://www.instagram.com/p/CDj7xNCA75N/)
+[#NashvilleRecoveryTour](https://www.instagram.com/p/CDmrIOYgICQ/)
+[Dallas Innovates](https://dallasinnovates.com/voices-chirag-gupta-reinventing-the-k-12-classroom-in-2020/)
+[Voices From The Streets](https://www.voicesfromthestreets.org/)
+[2EZ Percussion](https://www.instagram.com/p/B_8XxIVgS5z/)
+[Urban Dreams Music & Arts Program](https://www.instagram.com/p/CC7buRYnFuY/)
 
 ### Percussion + Music
 
-I started studying music in 2001 as a percussionist in the school concert band, and then went on to march center snare in the high school drumline and played lead parts in high school and college percussion ensembles (including snare drum, drumset, marimba, timpani, steel drums, djembe, congas). I studied marching percussion and latin percussion under Josh Schusterman from 2002 to 2008, and studied jazz/drumset under Brett Deptula from 2010-2012. I have performed professionally in various ensembles in various settings and began teaching in 2018. For two years, I was the in-house drummer for an independent recording studio in Dallas' Deep Ellum neighborhood where I built a small community by hosting weekly jam sessions, and recorded drum tracks for professional musicians with styles including blues, hip-hop, and alternative rock. In 2019, I briefly was the drummer for a local band called The Secondary Colours led by singer songwriter Aegis Vaughn Brown. In the summer and fall I serve as an adjunct percussion director and/or drumline tech for various area high school drumlines including Urban Dreams Music and Arts Program's Black Dynasty Drumline, The Greenhill School's Hornet Drumline, South Oak Cliff High School, Plano East Senior High School, and I teach 45 minute private lessons for drums and marimba via Facetime or Zoom (please contact me for details/pricing!). Currently working on an instructional book for beginner percussionists with the working title of "Your 1st 100 Days of Drumming" which I plan to release to the community for free.
+I started studying music in 2001 as a percussionist in the school concert band, and then went on to march center snare in the high school drumline and played lead parts in high school and college percussion ensembles (including snare drum, drumset, marimba, timpani, steel drums, djembe, congas). I studied marching percussion and latin percussion under Josh Schusterman from 2002 to 2008, and studied New Orleans jazz under Brett Deptula from 2010-2012. I have performed professionally in various ensembles in various settings and began teaching professionally in 2018. For two years, I was the in-house drummer for an independent recording studio in Dallas' Deep Ellum neighborhood where I built a small community by hosting weekly jam sessions, and recorded drum tracks for professional musicians with styles including blues, hip-hop, and alternative rock. Some artists/bands that I have collaborated with include [ChynnaDoll](https://www.instagram.com/chynnadolltm/) , [Electrik Ants](https://www.instagram.com/electrikants/), and [Canned Sushi](https://www.instagram.com/sushi_in_a_can/). In 2019, I was the drummer for a local band called The Secondary Colours led by singer songwriter Aegis Vaughn Brown. In 2020, I began my journey on the road with my drums and my dog doing laps around the US.
+
+Lessons/Teaching: My lessons are 45 minute 1-on-1 (outdoor) sessions for beginners who want to learn to play drums or experienced musicians who just want to build up and reinforce their rhythm skills. In marching band season, I am available to serve as an adjunct percussion director and/or drumline tech for high school drumlines or DCI groups. Previously I have worked with Urban Dreams Music and Arts Program's Black Dynasty Drumline, The Greenhill School's Hornet Drumline, South Oak Cliff High School Drumline, and Plano East Senior High School Drumline. 
+
+Book: Writing an instructional book for beginners called "Your 1st 100 Days of Drumming" inspired by my classroom teaching experience, private lesson students, and the [Mad Beatz Philly](https://www.instagram.com/madbeatzphilly/) philosophy which argues that the act of practicing music should be an act of creating music. 
 
 ### Northwestern Club of DFW
 
-I am the 2019-2020 President of the Northwestern Alumni Club of Dallas - Fort Worth. I graduated from Northwestern University in 2012 (McCormick/Medill/AyersCCI) and have been on the board of the club since 2014.
+I am the 2019-2021 President of the Northwestern Alumni Club of Dallas - Fort Worth. I graduated from Northwestern University in 2012 (McCormick/Medill/AyersCCI) and have been on the board of the club since 2014. 
 
 ### Love Thy Neighbor
 
