@@ -3,6 +3,7 @@
 You can follow me on [Insta](https://instagram.com/ChicagoGupta) to see what I'm up to in real time. Below you'll find a list of my current projects, links to various resources, and photos of #ghattoo. Please let me know about any broken links or things that need to be updated here! (I am at a computer only once every few months)
 
 Latest Music Work: [#NashvilleRecoveryTour](https://www.instagram.com/p/CDmrIOYgICQ/)
+
 Latest Article: [#WeTheTeachers](https://chicagogupta.medium.com/)
 
 ### As Seen/Heard In/On...
