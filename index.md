@@ -6,6 +6,16 @@ Latest Music Work: [Pan African Connection Drum Circle](https://www.instagram.co
 
 Latest Article: [#WeTheTeachers](https://chicagogupta.medium.com/)
 
+## Anti-Racism Resources
+
+Mutual Aid: contact me to find out how to get involved with community fridges and community art projects 
+
+[Blasian March](https://www.instagram.com/blasianmarch/)
+
+[Carry On Tradition](https://carryonthreads.com/)
+
+[Bowman Global](http://bowmanglobal.co/)
+
 ### As Seen/Heard In/On...
 [Rudimental Drummers](https://www.instagram.com/p/CDj7xNCA75N/)
 [#NashvilleRecoveryTour](https://www.instagram.com/p/CDmrIOYgICQ/)
