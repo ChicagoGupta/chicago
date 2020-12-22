@@ -1,10 +1,12 @@
-## Music Teacher & Journalist
+## Music Teacher / Journalist / Artist
 
 You can follow me on [Insta](https://instagram.com/ChicagoGupta) to see what I'm up to in real time. Below you'll find a list of my current projects, links to various resources, and photos of #ghattoo. Please let me know about any broken links or things that need to be updated here! (I am at a computer only once every few months)
 
-Latest Music Work: [Pan African Connection Drum Circle](https://www.instagram.com/tv/CI0s2uGl4iZ/)
+Latest Music: [Pan African Connection Drum Circle](https://www.instagram.com/tv/CI0s2uGl4iZ/)
 
 Latest Article: [#WeTheTeachers](https://chicagogupta.medium.com/)
+
+Latest Art: [T-shirt Design for Carry On Threads](https://carryonthreads.com/product/black-lives-matter-hindi-text-t-shirt/)
 
 ## Anti-Racism Resources
 
@@ -36,6 +38,10 @@ Lessons/Teaching: My lessons are 45 minute 1-on-1 (outdoor) sessions for beginne
 Began studying guitar and voice in 2020.
 
 Book: Writing an instructional book for beginners called "Your 1st 100 Days of Drumming" inspired by my classroom teaching experience, private lesson students, and the [Mad Beatz Philly](https://www.instagram.com/madbeatzphilly/) philosophy which argues that the act of practicing music should be an act of creating music. Please contact me if you would like to collaborate with me on this book.
+
+### Art Projex
+
+In 2020-2021 collaborated with Carry On Threads on the design of their "[Black lives matter Hindi-text T-Shirt](https://carryonthreads.com/product/black-lives-matter-hindi-text-t-shirt/)" which is now available for purchase as a limited edition item. 
 
 ### Northwestern Club of DFW
 
