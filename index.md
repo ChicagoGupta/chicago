@@ -1,13 +1,13 @@
 ## Music Teacher / Journalist / Artist
 
 You can follow me on [Insta](https://instagram.com/ChicagoGupta) to see what I'm up to in real time. Below you'll find a list of my current projects, links to various resources, and photos of #ghattoo. Please let me know about any broken links or things that need to be updated here! (I am at a computer only once every few months)
-```
+
 Latest Music: [Pan African Connection Drum Circle](https://www.instagram.com/tv/CI0s2uGl4iZ/)
 
 Latest Article: [#WeTheTeachers](https://chicagogupta.medium.com/)
 
 Latest Art: [T-shirt Design for Carry On Threads](https://carryonthreads.com/product/black-lives-matter-hindi-text-t-shirt/)
-```
+
 
 ## Anti-Racism Resources
 
