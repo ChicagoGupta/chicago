@@ -2,17 +2,19 @@
 
 You can follow me on [Insta](https://instagram.com/ChicagoGupta) to see what I'm up to in real time. Below you'll find a list of my current projects, links to various resources, and photos of #ghattoo. Please let me know about any broken links or things that need to be updated here! (I am at a computer only once every few months)
 
-Latest Music: [Pan African Connection Drum Circle](https://www.instagram.com/tv/CI0s2uGl4iZ/)
+Latest Music: "Lean on Me" remix for LACF (message me for the lyrics!)
 
 Latest Article: [#WeTheTeachers](https://chicagogupta.medium.com/)
 
-Latest Art: [T-shirt Design for Carry On Threads](https://carryonthreads.com/product/black-lives-matter-hindi-text-t-shirt/)
+Latest Art: [ice drawing](https://www.instagram.com/p/CKJpWDvnD9y/)
 
 
 ## Anti-Racism Resources
 
 Mutual Aid: contact me to find out how to get involved with community fridges and community art projects 
 [Mutual Aid Hub](https://www.mutualaidhub.org/)
+
+Google "Margarita Brooks"
 
 [Blasian March](https://www.instagram.com/blasianmarch/)
 
@@ -29,26 +31,25 @@ South Asian Americans should read [this article](https://www.theatlantic.com/mag
 [Voices From The Streets](https://www.voicesfromthestreets.org/)
 [2EZ Percussion](https://www.instagram.com/p/B_8XxIVgS5z/)
 [Urban Dreams Music & Arts Program](https://www.instagram.com/p/CC7buRYnFuY/)
+[Pan African Connection Drum Circle](https://www.instagram.com/tv/CI0s2uGl4iZ/)
 
 
 ### Percussion + Music
 
-I started studying music in 2001 as a percussionist in the school concert band, and also was occasionally selected to play with the school choir and orchestra. My teachers early on were Don Kitchens, Lori Peel, Josh Schusterman, Christopher Vigneron, LaRae Baker Duff, and Glenn Lambert. Later on I studied New Orleans jazz and composition under Brett Deptula at Northwestern University. For two years, I was the in-house drummer for an independent recording studio in Dallas' Deep Ellum neighborhood where I built a small community by hosting weekly jam sessions, and recorded drum tracks for professional musicians with styles including blues, hip-hop, and alternative rock. Some artists/bands that I have collaborated with include [ChynnaDoll](https://www.instagram.com/chynnadolltm/) , [Electrik Ants](https://www.instagram.com/electrikants/), and [Canned Sushi](https://www.instagram.com/sushi_in_a_can/). In 2019, I was the drummer for a local band called [The Secondary Colours](https://www.instagram.com/p/BwDK-DPHHnR/) led by singer songwriter Aegis Vaughn Brown. 
+I started studying music in 2001 as a percussionist in the school concert band, and also was occasionally selected to play with the school choir and orchestra. My teachers early on were Don Kitchens, [Lori Peel](https://www.turrentinejacksonmorrow.com/obituaries/lori-peel-42317), Josh Schusterman, Christopher Vigneron, LaRae Baker Duff, and Glenn Lambert. Later on I studied New Orleans jazz and composition under Brett Deptula at Northwestern University. More recently, I began studying guitar with Chris from [Ruff Wizard](https://www.ruffwizard.com/) and voice with [@herjerper](https://www.tiktok.com/@herjerper?) in 2020.For two years, I was the in-house drummer for an independent recording studio in Dallas' Deep Ellum neighborhood where I built a small community by hosting weekly jam sessions, and recorded drum tracks for professional musicians with styles including blues, hip-hop, and alternative rock. Some artists/bands that I have collaborated with include [ChynnaDoll](https://www.instagram.com/chynnadolltm/) , [Electrik Ants](https://www.instagram.com/electrikants/), and [Canned Sushi](https://www.instagram.com/sushi_in_a_can/). In 2019, I was the drummer for a local band called [The Secondary Colours](https://www.instagram.com/p/BwDK-DPHHnR/) led by singer songwriter Aegis Vaughn Brown. 
 
-Lessons/Teaching: My lessons are 45 minute 1-on-1 (outdoor) sessions for beginners who want to learn to play drums or experienced musicians who just want to build up and reinforce their rhythm skills. I have had over 50 private lesson students over the years. In marching band season, I am available to serve as an adjunct percussion director and/or drumline tech for high school drumlines or DCI groups. Previously I have worked with Urban Dreams Music and Arts Program's Black Dynasty Drumline, The Greenhill School's Hornet Drumline, South Oak Cliff High School Drumline, and Plano East Senior High School Drumline. 
-
-Began studying guitar and voice in 2020.
+Lessons/Teaching: message me for private lesson rates and availability. Previously I have worked with Urban Dreams Music and Arts Program's Black Dynasty Drumline, The Greenhill School's Hornet Drumline, South Oak Cliff High School Drumline, and Plano East Senior High School Drumline. 
 
 Book: Writing an instructional book for beginners called "Your 1st 100 Days of Drumming" inspired by my classroom teaching experience, private lesson students, and the [Mad Beatz Philly](https://www.instagram.com/madbeatzphilly/) philosophy which argues that the act of practicing music should be an act of creating music. Please contact me if you would like to collaborate with me on this book.
 
 ### Art Projex
 
-In 2020-2021 collaborated with Carry On Threads on the design of their "[Black lives matter Hindi-text T-Shirt](https://carryonthreads.com/product/black-lives-matter-hindi-text-t-shirt/)" which is now available for purchase as a limited edition item. 
+In 2020-2021 collaborated with Carry On and Zuhg on the design of their "[Black lives matter Hindi-text T-Shirt](https://carryonthreads.com/product/black-lives-matter-hindi-text-t-shirt/)"
 
 ### Northwestern Club of DFW
 
-I am currently serving as the 2019-2021 President of the Northwestern Alumni Club of Dallas - Fort Worth. I graduated from Northwestern University in 2012 (McCormick/Medill/AyersCCI) and have been on the board of the club since 2014. 
+I am currently serving as the 2019-2021 President of the Northwestern Alumni Club of Dallas - Fort Worth. I graduated from Northwestern University in 2012 (McCormick/Medill/AyersCCI) and have been on the board of the club since 2014. If you would like to join the club or make a donation to the scholarship fund, please get in touch!
 
 ### Love Thy Neighbor
 
-In 2019 I collaborated with K-12 teachers around the world on an international peace project called Love Thy Neighbor where school children exchange handwritten letters with school children in a neighboring country. This was done by developing lesson plans for English teachers to use in K-12 classroom settings.  [The project](https://www.facebook.com/walnutedu/posts/2436345716437948) was with K-12 students from Walnut School (Pune, India) and NJV School (Karachi, Pakistan). 
+In 2019 I collaborated with K-12 teachers around the world on an international peace project called Love Thy Neighbor where school children exchange handwritten letters with school children in a neighboring country. This was done by developing lesson plans for English teachers to use in K-12 classroom settings.  [The project](https://www.facebook.com/walnutedu/posts/2436345716437948) was with K-12 students from Walnut School (Pune, India) and NJV School (Karachi, Pakistan). Special thanks to [Uzair Qarni](https://www.linkedin.com/public-profile/in/uqarni?) from Nativ Learning for being an early collaborator for this project.
