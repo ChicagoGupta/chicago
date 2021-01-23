@@ -4,7 +4,7 @@ You can follow me on [Insta](https://instagram.com/ChicagoGupta) to see what I'm
 
 Latest Music: "Lean on Me" remix for LACF (message me for the lyrics!)
 
-Latest Article: [#WeTheTeachers](https://chicagogupta.medium.com/)
+Latest Article: [interdependence](https://chicagogupta.medium.com/)
 
 Latest Art: [ice drawing](https://www.instagram.com/p/CKJpWDvnD9y/)
 
@@ -38,7 +38,7 @@ South Asian Americans should read [this article](https://www.theatlantic.com/mag
 
 I started studying music in 2001 as a percussionist in the school concert band, and also was occasionally selected to play with the school choir and orchestra. My teachers early on were Don Kitchens, [Lori Peel](https://www.turrentinejacksonmorrow.com/obituaries/lori-peel-42317), Josh Schusterman, Christopher Vigneron, LaRae Baker Duff, and Glenn Lambert. Later on I studied New Orleans jazz and composition under Brett Deptula at Northwestern University. More recently, I began studying guitar with Chris from [Ruff Wizard](https://www.ruffwizard.com/) and voice with [@herjerper](https://www.tiktok.com/@herjerper?) in 2020.For two years, I was the in-house drummer for an independent recording studio in Dallas' Deep Ellum neighborhood where I built a small community by hosting weekly jam sessions, and recorded drum tracks for professional musicians with styles including blues, hip-hop, and alternative rock. Some artists/bands that I have collaborated with include [ChynnaDoll](https://www.instagram.com/chynnadolltm/) , [Electrik Ants](https://www.instagram.com/electrikants/), and [Canned Sushi](https://www.instagram.com/sushi_in_a_can/). In 2019, I was the drummer for a local band called [The Secondary Colours](https://www.instagram.com/p/BwDK-DPHHnR/) led by singer songwriter Aegis Vaughn Brown. 
 
-Lessons/Teaching: message me for private lesson rates and availability. Previously I have worked with Urban Dreams Music and Arts Program's Black Dynasty Drumline, The Greenhill School's Hornet Drumline, South Oak Cliff High School Drumline, and Plano East Senior High School Drumline. 
+Lessons/Teaching: message me for private lesson rates and availability. Previously I have worked with Urban Dreams Music and Arts Program's Black Dynasty Drumline, Townview High School Drumline, The Greenhill School's Hornet Drumline, South Oak Cliff High School Drumline, The Koan School, and Plano East Senior High School Drumline. 
 
 Book: Writing an instructional book for beginners called "Your 1st 100 Days of Drumming" inspired by my classroom teaching experience, private lesson students, and the [Mad Beatz Philly](https://www.instagram.com/madbeatzphilly/) philosophy which argues that the act of practicing music should be an act of creating music. Please contact me if you would like to collaborate with me on this book.
 
