@@ -11,8 +11,7 @@ Latest Art: [ice drawing](https://www.instagram.com/p/CKJpWDvnD9y/)
 
 ## Anti-Racism Resources
 
-Mutual Aid: contact me to find out how to get involved with community fridges and community art projects 
-[Mutual Aid Hub](https://www.mutualaidhub.org/)
+Mutual Aid: contact me to get involved with community fridges and community art projects 
 
 Google "Margarita Brooks"
 
@@ -22,7 +21,7 @@ Google "Margarita Brooks"
 
 [Bowman Global](http://bowmanglobal.co/)
 
-South Asian Americans should read [this article](https://www.theatlantic.com/magazine/archive/2021/01/the-making-of-a-model-minority/617258/)
+[brown privilege](https://www.theatlantic.com/magazine/archive/2021/01/the-making-of-a-model-minority/617258/)
 
 ### As Seen/Heard In/On...
 [Rudimental Drummers](https://www.instagram.com/p/CDj7xNCA75N/)
