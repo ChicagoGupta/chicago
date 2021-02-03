@@ -8,12 +8,16 @@ Latest Article: [interdependence](https://chicagogupta.medium.com/)
 
 Latest Art: [ice drawing](https://www.instagram.com/p/CKJpWDvnD9y/)
 
+Latest Speaking: [blasian march livestream](https://www.instagram.com/tv/CKzvS2HAW9F/)
+
 
 ## Anti-Racism Resources
 
 Mutual Aid: contact me to get involved with community fridges and community art projects 
 
-Google "Margarita Brooks"
+Police Violence: Google "Margarita Brooks"
+
+Prison Violence: Google "Trina Garnett"
 
 [Blasian March](https://www.instagram.com/blasianmarch/)
 
