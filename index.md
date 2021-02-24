@@ -6,22 +6,26 @@ Latest Music: "Lean on Me" remix for LACF (message me for the lyrics!)
 
 Latest Article: [interdependence](https://chicagogupta.medium.com/)
 
-Latest Art: [ice drawing](https://www.instagram.com/p/CKJpWDvnD9y/)
+Latest Art: black trans lives matter chinese t-shirt design (coming soon!)
 
-Latest Speaking: [blasian march livestream](https://www.instagram.com/tv/CKzvS2HAW9F/) (next IG livestream on march 10th 2pm central)
+Latest Speaking: [blasian march livestream](https://www.instagram.com/tv/CKzvS2HAW9F/) 
 
 
 ## Anti-Racism Resources
 
 Mutual Aid: contact me to get involved with community fridges and community art projects 
++ LACF
++ khalsa aid
 
 Police Violence: Google "Margarita Brooks"
 
-Prison Violence: Google "Trina Garnett"
+Prison Violence
++ [Equal Justice Initiative - Trina Garnett Case Summary](https://eji.org/cases/trina-garnett/)
 
 [Blasian March](https://www.instagram.com/blasianmarch/)
++ next IG livestream on march 10th 2pm central
 + May 22 new york city
-[Carry On Tradition](https://carryonthreads.com/)
+
 
 ### As Seen/Heard In/On...
 + [Washington Post](https://www.washingtonpost.com/politics/2021/02/04/virginia-may-abolish-death-penalty-theres-racist-history-why-few-jurisdictions-use-it-most/)
@@ -42,13 +46,15 @@ Prison Violence: Google "Trina Garnett"
 
 I started studying music in 2001 as a percussionist in the school concert band, and also was occasionally selected to play with the school choir and orchestra. My teachers early on were Don Kitchens, [Lori Peel](https://www.turrentinejacksonmorrow.com/obituaries/lori-peel-42317), Josh Schusterman, Christopher Vigneron, LaRae Baker Duff, Glenn Lambert, James Hannah, and Matthew Weyer. Later on I studied New Orleans jazz and composition under Brett Deptula at Northwestern University. More recently, I began studying guitar with Chris from [Ruff Wizard](https://www.ruffwizard.com/) and voice with [@herjerper](https://www.tiktok.com/@herjerper?) in 2020. For two years, I was co-hosting jam sessions in Deep Ellum, and recorded drum tracks for professional musicians with styles including blues, hip-hop, and alternative rock. Some artists/bands that I have collaborated with include [ChynnaDoll](https://www.instagram.com/chynnadolltm/) , [Electrik Ants](https://www.instagram.com/electrikants/), [Canned Sushi](https://www.instagram.com/sushi_in_a_can/), and [The Secondary Colours](https://www.instagram.com/p/BwDK-DPHHnR/) led by singer songwriter Aegis Vaughn Brown. Jamuary 2020 crew. In 2021 I was in a jam session hosted by DandyTheQueen along with Rachel Francis, and DotC.
 
-Lessons/Teaching: message me for private lesson rates and availability. Previously I have worked with Urban Dreams Music and Arts Program's Black Dynasty Drumline, Townview High School Drumline, The Greenhill School's Hornet Drumline, South Oak Cliff High School Drumline, The Koan School, and Plano East Senior High School Drumline. 
+Lessons/Teaching: message me for private lesson rates and availability. Previously I have worked with  The Koan School (2nd-3rd grade), Frazier Revitalization Music Theory and Percussion Program (3rd-6th grade), Urban Dreams Music and Arts Program's Black Dynasty Drumline, Townview High School Drumline, The Greenhill School's Hornet Drumline, South Oak Cliff High School Drumline, and Plano East Senior High School Drumline. 
 
 Book: Writing an instructional book for beginners called "Your 1st 100 Days of Drumming" inspired by my classroom teaching experience, private lesson students, and the [Mad Beatz Philly](https://www.instagram.com/madbeatzphilly/) philosophy which argues that the act of practicing music should be an act of creating music. Please contact me if you would like to collaborate with me on this book.
 
 ### Art Projex
 
-In 2020-2021 collaborated with Carry On and Zuhg on the design of their "[Black lives matter Hindi-text T-Shirt](https://carryonthreads.com/product/black-lives-matter-hindi-text-t-shirt/)". Then expanded the team to make on a variation of the t-shirt which features the message "black trans lives matter" written in chinese as 黑人跨性别的命也是命. (taking pre-orders now!)
++ In 2020-2021 collaborated with Carry On and Zuhg on the design of their "[Black lives matter Hindi-text T-Shirt](https://carryonthreads.com/product/black-lives-matter-hindi-text-t-shirt/)". Then expanded the team to make on a variation of the t-shirt which features the message "black trans lives matter" written in chinese as 黑人跨性别的命也是命. (taking pre-orders now!)
++ [ice drawing](https://www.instagram.com/p/CKJpWDvnD9y/)
+
 
 ### Northwestern Club of DFW
 
