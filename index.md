@@ -8,7 +8,7 @@ Latest Article: [interdependence](https://chicagogupta.medium.com/)
 
 Latest Art: [ice drawing](https://www.instagram.com/p/CKJpWDvnD9y/)
 
-Latest Speaking: [blasian march livestream](https://www.instagram.com/tv/CKzvS2HAW9F/)
+Latest Speaking: [blasian march livestream](https://www.instagram.com/tv/CKzvS2HAW9F/) (next IG livestream on march 10th 2pm central)
 
 
 ## Anti-Racism Resources
@@ -20,24 +20,22 @@ Police Violence: Google "Margarita Brooks"
 Prison Violence: Google "Trina Garnett"
 
 [Blasian March](https://www.instagram.com/blasianmarch/)
-
++ May 22 new york city
 [Carry On Tradition](https://carryonthreads.com/)
 
-[Bowman Global](http://bowmanglobal.co/)
-
-[brown privilege](https://www.theatlantic.com/magazine/archive/2021/01/the-making-of-a-model-minority/617258/)
-
 ### As Seen/Heard In/On...
-[Washington Post](https://www.washingtonpost.com/politics/2021/02/04/virginia-may-abolish-death-penalty-theres-racist-history-why-few-jurisdictions-use-it-most/)
-[Washington Post](https://www.washingtonpost.com/opinions/the-death-penalty-is-in-the-death-throes/2021/02/05/e332c23e-67cb-11eb-8c64-9595888caa15_story.html)
-[The Guardian](https://www.theguardian.com/us-news/2021/jan/23/biden-democrats-death-row-sentences-prisoner)
-[Rudimental Drummers](https://www.instagram.com/p/CDj7xNCA75N/)
-[#NashvilleRecoveryTour](https://www.instagram.com/p/CDmrIOYgICQ/)
-[Dallas Innovates](https://dallasinnovates.com/voices-chirag-gupta-reinventing-the-k-12-classroom-in-2020/)
-[Voices From The Streets](https://www.voicesfromthestreets.org/)
-[2EZ Percussion](https://www.instagram.com/p/B_8XxIVgS5z/)
-[Urban Dreams Music & Arts Program](https://www.instagram.com/p/CC7buRYnFuY/)
-[Pan African Connection Drum Circle](https://www.instagram.com/tv/CI0s2uGl4iZ/)
++ [Washington Post](https://www.washingtonpost.com/politics/2021/02/04/virginia-may-abolish-death-penalty-theres-racist-history-why-few-jurisdictions-use-it-most/)
++ [Washington Post](https://www.washingtonpost.com/opinions/the-death-penalty-is-in-the-death-throes/2021/02/05/e332c23e-67cb-11eb-8c64-9595888caa15_story.html)
++ [The Guardian](https://www.theguardian.com/us-news/2021/jan/23/biden-democrats-death-row-sentences-prisoner)
++ [Rudimental Drummers](https://www.instagram.com/p/CDj7xNCA75N/)
++ [#NashvilleRecoveryTour](https://www.instagram.com/p/CDmrIOYgICQ/)
++ [Dallas Innovates](https://dallasinnovates.com/voices-chirag-gupta-reinventing-the-k-12-classroom-in-2020/)
++ [Voices From The Streets](https://www.voicesfromthestreets.org/)
++ [2EZ Percussion](https://www.instagram.com/p/B_8XxIVgS5z/)
++ [Pro Percussion](https://www.youtube.com/watch?v=FVFJuaCJlPQ)
++ [Urban Dreams Music & Arts Program](https://www.instagram.com/p/CC7buRYnFuY/)
++ [Pan African Connection Drum Circle](https://www.instagram.com/tv/CI0s2uGl4iZ/)
++ [The Clubfoot Club](https://clubfootclub.org/stories/bilateral-clubfoot-born-1989/)
 
 
 ### Percussion + Music
@@ -50,7 +48,7 @@ Book: Writing an instructional book for beginners called "Your 1st 100 Days of D
 
 ### Art Projex
 
-In 2020-2021 collaborated with Carry On and Zuhg on the design of their "[Black lives matter Hindi-text T-Shirt](https://carryonthreads.com/product/black-lives-matter-hindi-text-t-shirt/)"
+In 2020-2021 collaborated with Carry On and Zuhg on the design of their "[Black lives matter Hindi-text T-Shirt](https://carryonthreads.com/product/black-lives-matter-hindi-text-t-shirt/)". Then expanded the team to make on a variation of the t-shirt which features the message "black trans lives matter" written in chinese as 黑人跨性别的命也是命. (taking pre-orders now!)
 
 ### Northwestern Club of DFW
 
