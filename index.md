@@ -1,18 +1,18 @@
 ## Music Teacher / Journalist / Artist
 
-You can follow me on [Insta](https://instagram.com/ChicagoGupta) to see what I'm up to in real time. Below you'll find a list of my current projects, links to various resources, and photos of #ghattoo. Please let me know about any broken links or things that need to be updated here! (I am at a computer only once every few months)
+You can follow me on [Insta](https://instagram.com/ChicagoGupta) to see what I'm up to in real time. Below you'll find a list of my current projects and links to mutual aid resources. Please let me know about any broken links or things that need to be updated here! (I am at a computer only once every few months)
 
 Latest Music: freestyle with [R(evolutionary) Beats](https://www.instagram.com/p/CET3UexH8ll/)
 
 Latest Article: [interdependence](https://chicagogupta.medium.com/)
 
-* donate to my travel fund (Venmo: chicago-gupta) to support my upcoming trip to 38th & Chicago to report on the George Floyd trial
+* donate to my travel fund to support my independent journalism work (Venmo: chicago-gupta)
 
 ## Anti-Racism Resources
 
 Mutual Aid: contact me to get involved with community fridges and community art projects 
 + LACF
-+ khalsa aid
++ The People's Fridge
 
 Police Violence: Google "Margarita Brooks"
 
@@ -20,8 +20,8 @@ Prison Violence
 + [Equal Justice Initiative - Trina Garnett Case Summary](https://eji.org/cases/trina-garnett/)
 
 [Blasian March](https://www.instagram.com/blasianmarch/)
-+ next IG livestream on march 10th 2pm central
-+ May 22 new york city
++ next IG livestream on april 4th @ 12pm central
++ May 22 new york city event
 
 
 ### As Seen/Heard In/On...
