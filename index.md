@@ -2,6 +2,8 @@
 
 You can follow me on [Insta](https://instagram.com/ChicagoGupta) to see what I'm up to in real time. Below you'll find a list of my current projects and links to mutual aid resources. Please let me know about any broken links or things that need to be updated here! (I am at a computer only once every few months)
 
+T-shirt Order Info and Artist Statements [Google Spreadsheet](https://docs.google.com/spreadsheets/d/1nYBclRxTiNo__USvah7Bc5OFCAkqwDIKJJDHlQlE5io/edit#gid=1680437150)
+
 Latest Music: freestyle with [R(evolutionary) Beats](https://www.instagram.com/p/CET3UexH8ll/)
 
 Latest Article: [interdependence](https://chicagogupta.medium.com/)
