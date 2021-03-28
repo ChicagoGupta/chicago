@@ -1,20 +1,21 @@
-## Music Teacher / Journalist / Artist
+## Music Teacher / Journalist / Artist 黑人跨性别的命也是命
 
-You can follow me on [Insta](https://instagram.com/ChicagoGupta) to see what I'm up to in real time. Below you'll find a list of my current projects and links to mutual aid resources. Please let me know about any broken links or things that need to be updated here! (I am at a computer only once every few months)
+You can follow me on IG/twtr to see what I'm up to -- chicagogupta is my handle most places. Below is a list of my current projects and links to mutual aid resources. Please let me know about any broken links or things that need to be updated here! (I am at a computer only once every few months)
 
 T-shirt Order Info and Artist Statements [Google Spreadsheet](https://docs.google.com/spreadsheets/d/1nYBclRxTiNo__USvah7Bc5OFCAkqwDIKJJDHlQlE5io/edit#gid=1680437150)
 
-Latest Music: freestyle with [R(evolutionary) Beats](https://www.instagram.com/p/CET3UexH8ll/)
+Latest Music: [freestyle snare drum x drum set jam](https://www.instagram.com/p/CM9-mYcH9yR/)
 
 Latest Article: [interdependence](https://chicagogupta.medium.com/)
 
 * donate to my travel fund to support my independent journalism work (Venmo: chicago-gupta)
 
-## Anti-Racism Resources
+## Black Liberation Resources
 
 Mutual Aid: contact me to get involved with community fridges and community art projects 
-+ LACF
-+ The People's Fridge
++ LACF (LA)
++ The People's Fridge (Dallas)
++ No Questions Asked Food Pantry (Indianapolis)
 
 Police Violence: Google "Margarita Brooks"
 
@@ -22,8 +23,8 @@ Prison Violence
 + [Equal Justice Initiative - Trina Garnett Case Summary](https://eji.org/cases/trina-garnett/)
 
 [Blasian March](https://www.instagram.com/blasianmarch/)
-+ next IG livestream on april 4th @ 12pm central
-+ May 22 new york city event
++ DM me for livestream schedule
++ DM me for new york city event deets
 
 
 ### As Seen/Heard In/On...
@@ -31,8 +32,9 @@ Prison Violence
 + [Washington Post](https://www.washingtonpost.com/politics/2021/02/04/virginia-may-abolish-death-penalty-theres-racist-history-why-few-jurisdictions-use-it-most/)
 + [Washington Post](https://www.washingtonpost.com/opinions/the-death-penalty-is-in-the-death-throes/2021/02/05/e332c23e-67cb-11eb-8c64-9595888caa15_story.html)
 + [The Guardian](https://www.theguardian.com/us-news/2021/jan/23/biden-democrats-death-row-sentences-prisoner)
-+ [Rudimental Drummers](https://www.instagram.com/p/CDj7xNCA75N/)
++ [Rudimental Drummers x Mad Beatz Philly](https://www.instagram.com/p/CDj7xNCA75N/)
 + [#NashvilleRecoveryTour](https://www.instagram.com/p/CDmrIOYgICQ/)
++ [#VisualBlackJustice Nashville Tour Stop](https://www.instagram.com/p/CM9-mYcH9yR/)
 + [Dallas Innovates](https://dallasinnovates.com/voices-chirag-gupta-reinventing-the-k-12-classroom-in-2020/)
 + [Voices From The Streets](https://www.voicesfromthestreets.org/)
 + [2EZ Percussion](https://www.instagram.com/p/B_8XxIVgS5z/)
@@ -55,7 +57,10 @@ I started studying music in 2001 as a percussionist in the school concert band, 
 + Jamuary
 + [Micah Moskowitz](https://www.instagram.com/micah_moskowitz/)
 + [Rachel Francis](https://www.instagram.com/rachelfrancismusic/)
++ [R(evolutionary) Beats](https://www.instagram.com/r.beats_/)
 + [The Secondary Colours](https://www.instagram.com/p/BwDK-DPHHnR/)
++ [The Khaysie](https://www.instagram.com/p/CMp5AdPhFu_/)
++ "easy" (solo trumpet/sax player in south minneapolis)
 
 Lessons/Teaching: message me for drumset / snare drum private lesson rates and availability. I also teach a basic course on how to read and write music. Previously I have worked with 
 + South Oak Cliff High School Drumline
@@ -69,7 +74,7 @@ Lessons/Teaching: message me for drumset / snare drum private lesson rates and a
 + + Williams Jr High School Drumline
 + + McMillen Jr High School Drumline
 
-Book: Writing an instructional book for beginners called "Your 1st 100 Days of Drumming" inspired by my classroom teaching experience, private lesson students, and the [Mad Beatz Philly](https://www.instagram.com/madbeatzphilly/) philosophy which argues that the act of practicing music should be an act of creating music. Please contact me if you would like to collaborate with me on this book.
+Book: Writing an instructional book for beginners called "Your 1st 100 Days of Drumming" inspired by my classroom teaching experience, private lesson students, philosophy which argues that the act of practicing music should be an act of creating music. Please contact me if you would like to collaborate with me on this book. Percussion book authors I like to use in the classroom include: Darien Brown (Rudimental Chemistry), Tommy Igoe, Ted Reed, George Lawrence Stone, and Mark Wessels.
 
 ### Art Projex
 
