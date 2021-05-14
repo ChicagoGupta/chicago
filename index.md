@@ -84,11 +84,13 @@ Book: Writing an instructional book for beginners called "Your 1st 100 Days of D
 
 ### Art Projex
 
-+ [Daunte Wright installation](https://www.instagram.com/p/CO1PbDiggfo/)
-+ [काले लोग MATTER T-shirt Design](https://carryonthreads.com/product/black-lives-matter-hindi-text-t-shirt/)"
-+ [黑人跨性别的命也是命 T-shirt Design]
-+ [ice drawing](https://www.instagram.com/p/CKJpWDvnD9y/)
-+ [gravel painting](https://twitter.com/ChicagoGupta/status/1393232807175069698?s=20)
++ Art Installations
++ + [Daunte Wright](https://www.instagram.com/p/CO1PbDiggfo/)
++ + [ice drawing](https://www.instagram.com/p/CKJpWDvnD9y/)
++ + [gravel painting](https://twitter.com/ChicagoGupta/status/1393232807175069698?s=20)
++ T-shirt Designs
++ + [काले लोग MATTER T-shirt Design](https://carryonthreads.com/product/black-lives-matter-hindi-text-t-shirt/)
++ + [黑人跨性别的命也是命 T-shirt Design](https://carryonthreads.com/product/black-trans-lives-matter-mens-heavyweight-tee/)
 
 ### Love Thy Neighbor
 
