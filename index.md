@@ -1,17 +1,15 @@
 ## Music Teacher / Journalist / Artist 
 
-You can follow me on IG/twtr to see what I'm up to -- chicagogupta is my handle most places. Below is a list of my current projects and links to mutual aid resources. Please let me know about any broken links or things that need to be updated here! 
+You can follow me online to see what I'm up to -- chicagogupta is my handle most places. 
 
 Latest Music: [Who's Jeff?](https://soundcloud.com/user-564203548/whos-jeff)
 
 Latest Article: [interdependence](https://chicagogupta.medium.com/)
 
-Venmo: @chicago-gupta 
-Cash App: $ChicagoGupta
+### Venmo: @chicago-gupta 
+### Cash App: $ChicagoGupta
 
-## Black Liberation 
-
-Mutual Aid: 
+### Mutual Aid: 
 + [LACF](https://linktr.ee/lacommunityfridge)
 + [CareBlocLA](https://www.instagram.com/careblocla/)
 + [The People's Fridge](https://www.panafricanconnection.com/)
@@ -19,15 +17,18 @@ Mutual Aid:
 + [Heer To Serve](https://www.facebook.com/heertoserve)
 + [NNOCA](https://nnoca.org/)
 
-Police Violence
-+ Google "Margarita Brooks" -- it is still unclear at this time whether killer cop Ravi Singh is even in jail or not
+### Police Violence
++ Google "Margarita Brooks" -- it is still [unclear](https://twitter.com/ChicagoGupta/status/1393246301077262338?s=20) at this time whether killer cop Ravi Singh is even in jail or not after the grand jury indictment.
 
-Prison Violence
+### Prison Violence
 + [Equal Justice Initiative - Trina Garnett Case Summary](https://eji.org/cases/trina-garnett/)
 + [ACLU - Roderick Keith Johnson Case Summary](https://www.prisonlegalnews.org/news/2006/sep/15/sexually-abused-texas-prisoner-loses-federal-lawsuit-returns-to-prison/)
 
-SAR Efforts 
+### SAR Efforts 
 + Saniyya Dennis missing from Univ of Buffalo since Apr 24 2021
+
+### Cop Watch
++ RLRRLRLL
 
 ### As Seen/Heard In/On...
 + [81Sixed Productions IG](https://www.instagram.com/p/CNQ18AphVRa/)
@@ -49,13 +50,13 @@ SAR Efforts
 + [Pro Percussion](https://www.youtube.com/watch?v=FVFJuaCJlPQ)
 + [Urban Dreams Music & Arts Program](https://www.instagram.com/p/CC7buRYnFuY/)
 + [Pan African Connection Drum Circle](https://www.instagram.com/tv/CI0s2uGl4iZ/)
-+ [The Clubfoot Club](https://clubfootclub.org/stories/bilateral-clubfoot-born-1989/)
 + [The Hoop Bus x R(evolutionary) Beats](https://www.instagram.com/p/CET3UexH8ll/)
++ [The Clubfoot Club](https://clubfootclub.org/stories/bilateral-clubfoot-born-1989/)
 
 
 ### Percussion + Music
 
-I started studying music in 2001 as a percussionist in the school concert band, and also was occasionally selected to play with the school choir and orchestra. My teachers early on were Don Kitchens, [Lori Peel](https://www.turrentinejacksonmorrow.com/obituaries/lori-peel-42317), Josh Schusterman, Christopher Vigneron, LaRae Baker Duff, Glenn Lambert, James Hannah, and Matthew Weyer. Later on I studied New Orleans jazz and composition under Brett Deptula at Northwestern University. More recently, I began studying guitar with Chris from [Ruff Wizard](https://www.ruffwizard.com/) and voice with [@herjerper](https://www.tiktok.com/@herjerper?) and trumpet with [Justin Copeland](http://justincopelandmusic.com/. I have been co-hosting open jam sessions with professional musicians for many years, and through those jam sessions some artists/bands that I have collaborated with include 
+I started studying music in 2001 as a percussionist in the school concert band, and also was occasionally selected to play with the school choir and orchestra. My teachers were Don Kitchens, [Lori Peel](https://www.turrentinejacksonmorrow.com/obituaries/lori-peel-42317), Josh Schusterman, Christopher Vigneron, LaRae Baker Duff, Glenn Lambert, James Hannah, Matthew Weyer, Brett Deptula, Chris E (guitar), Holly Pyle (voice) [@herjerper](https://www.tiktok.com/@herjerper?), and Justin Copeland (trumpet). I have been co-hosting open jam sessions with professional musicians for many years, and these are some of the artists that I have collaborated with: 
 
 + [ChynnaDoll](https://www.instagram.com/chynnadolltm/)
 + [Canned Sushi](https://www.instagram.com/sushi_in_a_can/)
@@ -73,16 +74,14 @@ I started studying music in 2001 as a percussionist in the school concert band, 
 + "easy" (solo trumpet/sax player in south minneapolis)
 
 Lessons/Teaching: message me for drumset / snare drum private lesson rates and availability. I also teach a basic course on how to read and write music. Previously I have worked with 
-+ South Oak Cliff High School Drumline
-+ Townview High School Drumline
-+ The Greenhill School's Hornet Drumline
-+ Urban Dreams Music and Arts Program's Black Dynasty Drumline
-+ Yamaha Sounds of Summer Program
++ South Oak Cliff High School Drumline (K. Clarke)
++ Townview High School Drumline (J. Walker)
++ The Greenhill School's Hornet Drumline (B. 
++ Urban Dreams Music and Arts Program's Black Dynasty Drumline (B. Donnell)
++ Yamaha Sounds of Summer Program (J. Brennan)
 + + Plano East Sr High School Drumline
 + + Williams Jr High School Drumline
 + + McMillen Jr High School Drumline
-
-Book: Writing an instructional book for beginners called "Your 1st 100 Days of Drumming" inspired by my classroom teaching experience, private lesson students, philosophy which argues that the act of practicing music should be an act of creating music. Please contact me if you would like to collaborate with me on this book. Percussion book authors I like to use in the classroom include: Darien Brown (Rudimental Chemistry), Tommy Igoe (Drumset), Ted Reed (Syncopation), George Lawrence Stone (Stick Control), and Mark Wessels (Snare Drum).
 
 [Snares On!](https://www.instagram.com/snares_on/)
 rlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrll
