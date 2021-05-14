@@ -2,7 +2,7 @@
 
 You can follow me on IG/twtr to see what I'm up to -- chicagogupta is my handle most places. Below is a list of my current projects and links to mutual aid resources. Please let me know about any broken links or things that need to be updated here! 
 
-Latest Music: [freestyle snare drum x drum set jam](https://www.instagram.com/p/CM9-mYcH9yR/)
+Latest Music: [Who's Jeff?](https://soundcloud.com/user-564203548)
 
 Latest Article: [interdependence](https://chicagogupta.medium.com/)
 
@@ -62,8 +62,10 @@ I started studying music in 2001 as a percussionist in the school concert band, 
 + [Electrik Ants](https://www.instagram.com/electrikants/)
 + [DandyTheQueen](https://www.instagram.com/dandythequeen/)
 + [DotC](https://soundcloud.com/dawn-of-the-computer)
-+ Jamuary
-+ [Micah Moskowitz](https://www.instagram.com/micah_moskowitz/)
++ [Jamuary](https://soundcloud.com/jhliberty/tracks)
++ [Micah Moskowitz](https://www.instagram.com/p/CM9-mYcH9yR/)
++ [Tommy Carroll](https://soundcloud.com/tommy-carroll-5)
++ [Sasha Bayan](https://soundcloud.com/sashabayan/)
 + [Rachel Francis](https://www.instagram.com/rachelfrancismusic/)
 + [R(evolutionary) Beats](https://www.instagram.com/r.beats_/)
 + [The Secondary Colours](https://www.instagram.com/p/BwDK-DPHHnR/)
@@ -81,6 +83,8 @@ Lessons/Teaching: message me for drumset / snare drum private lesson rates and a
 + + McMillen Jr High School Drumline
 
 Book: Writing an instructional book for beginners called "Your 1st 100 Days of Drumming" inspired by my classroom teaching experience, private lesson students, philosophy which argues that the act of practicing music should be an act of creating music. Please contact me if you would like to collaborate with me on this book. Percussion book authors I like to use in the classroom include: Darien Brown (Rudimental Chemistry), Tommy Igoe (Drumset), Ted Reed (Syncopation), George Lawrence Stone (Stick Control), and Mark Wessels (Snare Drum).
+
+[Snares On!](https://www.instagram.com/snares_on/)
 
 ### Art Projex
 
