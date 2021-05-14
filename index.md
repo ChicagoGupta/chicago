@@ -2,7 +2,7 @@
 
 You can follow me on IG/twtr to see what I'm up to -- chicagogupta is my handle most places. Below is a list of my current projects and links to mutual aid resources. Please let me know about any broken links or things that need to be updated here! 
 
-Latest Music: [Who's Jeff?](https://soundcloud.com/user-564203548)
+Latest Music: [Who's Jeff?](https://soundcloud.com/user-564203548/whos-jeff)
 
 Latest Article: [interdependence](https://chicagogupta.medium.com/)
 
@@ -85,7 +85,7 @@ Lessons/Teaching: message me for drumset / snare drum private lesson rates and a
 Book: Writing an instructional book for beginners called "Your 1st 100 Days of Drumming" inspired by my classroom teaching experience, private lesson students, philosophy which argues that the act of practicing music should be an act of creating music. Please contact me if you would like to collaborate with me on this book. Percussion book authors I like to use in the classroom include: Darien Brown (Rudimental Chemistry), Tommy Igoe (Drumset), Ted Reed (Syncopation), George Lawrence Stone (Stick Control), and Mark Wessels (Snare Drum).
 
 [Snares On!](https://www.instagram.com/snares_on/)
-
+rlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrll
 ### Art Projex
 
 + Art Installations
