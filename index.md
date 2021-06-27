@@ -12,23 +12,21 @@ Latest Article: [interdependence](https://chicagogupta.medium.com/)
 ### Mutual Aid: 
 + [LACF](https://linktr.ee/lacommunityfridge)
 + [CareBlocLA](https://www.instagram.com/careblocla/)
-+ [The People's Fridge](https://www.panafricanconnection.com/)
-+ [No Questions Asked Food Pantry](https://www.facebook.com/NoQuestionsAskedFoodPantry/)
-+ [Heer To Serve](https://www.facebook.com/heertoserve)
-+ [NNOCA](https://nnoca.org/)
 
 ### Police Violence
 + Google "Margarita Brooks" -- it is still [unclear](https://twitter.com/ChicagoGupta/status/1393246301077262338?s=20) at this time whether killer cop Ravi Singh is even in jail or not after the grand jury indictment.
++ Google "LASD Gangs"
 
 ### Prison Violence
 + [Equal Justice Initiative - Trina Garnett Case Summary](https://eji.org/cases/trina-garnett/)
 + [ACLU - Roderick Keith Johnson Case Summary](https://www.prisonlegalnews.org/news/2006/sep/15/sexually-abused-texas-prisoner-loses-federal-lawsuit-returns-to-prison/)
 
 ### SAR Efforts 
-+ Saniyya Dennis missing from Univ of Buffalo since Apr 24 2021
++ Google "Saniyya Dennis" -- she went missing from Univ of Buffalo since Apr 24 2021
 
 ### Cop Watch
 + RLRRLRLL
++ currently challenging an "Impeding Traffic" citation for stopping to film police arresting a black man in Dallas TX
 
 ### As Seen/Heard In/On...
 + [81Sixed Productions IG](https://www.instagram.com/p/CNQ18AphVRa/)
@@ -58,30 +56,36 @@ Latest Article: [interdependence](https://chicagogupta.medium.com/)
 
 I started studying music in 2001 as a percussionist in the school concert band, and also was occasionally selected to play with the school choir and orchestra. My teachers were Don Kitchens, [Lori Peel](https://www.turrentinejacksonmorrow.com/obituaries/lori-peel-42317), Josh Schusterman, Christopher Vigneron, LaRae Baker Duff, Glenn Lambert, James Hannah, Matthew Weyer, Brett Deptula, Chris E (guitar), Holly Pyle (voice) [@herjerper](https://www.tiktok.com/@herjerper?), and Justin Copeland (trumpet). I have been co-hosting open jam sessions with professional musicians for many years, and these are some of the artists that I have collaborated with: 
 
-+ [ChynnaDoll](https://www.instagram.com/chynnadolltm/)
+
 + [Canned Sushi](https://www.instagram.com/sushi_in_a_can/)
-+ [Electrik Ants](https://www.instagram.com/electrikants/)
++ [ChynnaDoll](https://www.instagram.com/chynnadolltm/)
++ "easy" (solo trumpet/sax player in south minneapolis)
 + [DandyTheQueen](https://www.instagram.com/dandythequeen/)
 + [DotC](https://soundcloud.com/dawn-of-the-computer)
++ [Electrik Ants](https://www.instagram.com/electrikants/)
 + [Jamuary](https://soundcloud.com/jhliberty/tracks)
 + [Micah Moskowitz](https://www.instagram.com/p/CM9-mYcH9yR/)
-+ [Tommy Carroll](https://soundcloud.com/tommy-carroll-5)
 + [Sasha Bayan](https://soundcloud.com/sashabayan/)
 + [Rachel Francis](https://www.instagram.com/rachelfrancismusic/)
 + [R(evolutionary) Beats](https://www.instagram.com/r.beats_/)
 + [The Secondary Colours](https://www.instagram.com/p/BwDK-DPHHnR/)
 + [The Khaysie](https://www.instagram.com/p/CMp5AdPhFu_/)
-+ "easy" (solo trumpet/sax player in south minneapolis)
++ [Tommy Carroll](https://soundcloud.com/tommy-carroll-5)
++ [tvshrine](https://www.instagram.com/tvshrine/)
+
 
 Lessons/Teaching: message me for drumset / snare drum private lesson rates and availability. I also teach a basic course on how to read and write music. Previously I have worked with 
 + South Oak Cliff High School Drumline (K. Clarke)
 + Townview High School Drumline (J. Walker)
-+ The Greenhill School's Hornet Drumline (B. 
-+ Urban Dreams Music and Arts Program's Black Dynasty Drumline (B. Donnell)
++ The Greenhill School's Hornet Drumline (B. Donnell)
++ Plano East Sr High School Drumline (J. Brennan)
++ Williams Jr High School Drumline (S. Gladney)
++ McMillen Jr High School Drumline (J. Brennan)
++ Big D Virtual Jazz Camp (J. Walker)
++ Big D Drumline Camp (J. Walker) 
++ Urban Dreams Music and Arts Program (D. Johnson)
 + Yamaha Sounds of Summer Program (J. Brennan)
-+ + Plano East Sr High School Drumline
-+ + Williams Jr High School Drumline
-+ + McMillen Jr High School Drumline
+
 
 [Snares On!](https://www.instagram.com/snares_on/)
 rlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrll
