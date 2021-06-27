@@ -3,24 +3,32 @@
 Latest Music: [Who's Jeff?](https://soundcloud.com/user-564203548/whos-jeff)
 
 Latest Article: [interdependence](https://chicagogupta.medium.com/interdependence-955a475f322a)
+
 rlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrll
 ### Venmo: @chicago-gupta 
 ### Cash App: $ChicagoGupta
+
 rlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrll
 ### Mutual Aid: 
 + [LACF](https://linktr.ee/lacommunityfridge)
 + [CareBlocLA](https://www.instagram.com/careblocla/)
+
 rlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrll
 ### Police Violence
 + Google "Margarita Brooks" -- it is still [unclear](https://twitter.com/ChicagoGupta/status/1393246301077262338?s=20) at this time whether killer cop Ravi Singh is even in jail or not after the grand jury indictment.
 + Google "LASD Gangs"
+
 rlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrll
 ### Prison Violence
 + [Equal Justice Initiative - Trina Garnett Case Summary](https://eji.org/cases/trina-garnett/)
 + [ACLU - Roderick Keith Johnson Case Summary](https://www.prisonlegalnews.org/news/2006/sep/15/sexually-abused-texas-prisoner-loses-federal-lawsuit-returns-to-prison/)
+
+
 rlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrll
 ### State Violence
 + Google "Scheduled Executions"
+
+
 rlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrll
 ### SAR Efforts 
 + Google "Saniyya Dennis" -- she went missing from Univ of Buffalo since Apr 24 2021
@@ -29,6 +37,8 @@ rlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrll
 + [Capital Transparency YouTube Channel](https://www.youtube.com/channel/UCETyrq7Sk-U7hSoSIbrRIcQ)
 + [Emporia Kansas Cop Block](https://www.youtube.com/channel/UCaWSjKF3N9EE3w-cWq9Q27Q)
 + currently challenging an "Impeding Traffic" citation for stopping to ask if I could [film police] while they were arresting a black man in Dallas TX
+
+
 rlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrll
 ### As Seen/Heard In/On...
 + [81Sixed Productions IG](https://www.instagram.com/p/CNQ18AphVRa/)
@@ -102,5 +112,5 @@ rlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrll
 ### Love Thy Neighbor
 
 In 2019 I collaborated with K-12 teachers around the world on an international peace project called Love Thy Neighbor where school children exchange handwritten letters with school children in a neighboring country. This was done by developing lesson plans for English teachers to use in K-12 classroom settings.  [The project](https://www.facebook.com/walnutedu/posts/2436345716437948) was with K-12 students from Walnut School (Pune, India) and NJV School (Karachi, Pakistan). Special thanks to [Uzair Qarni](https://www.linkedin.com/public-profile/in/uqarni?) from Nativ Learning for being an early collaborator for this project.
-
+RLRRLRLLRLRRLRLLRLRRLRLLRLRRLRLLRLRRLRLLRLRRLRLLRLRRLRLLRLRRLRLL
 ![flag](https://pbs.twimg.com/media/EkyEwkbVgAAWP78?format=png)
