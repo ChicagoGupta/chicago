@@ -4,7 +4,7 @@ You can follow me online to see what I'm up to -- chicagogupta is my handle most
 
 Latest Music: [Who's Jeff?](https://soundcloud.com/user-564203548/whos-jeff)
 
-Latest Article: [interdependence](https://chicagogupta.medium.com/)
+Latest Article: [interdependence](https://chicagogupta.medium.com/interdependence-955a475f322a)
 
 ### Venmo: @chicago-gupta 
 ### Cash App: $ChicagoGupta
