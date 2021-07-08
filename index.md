@@ -43,25 +43,27 @@ rlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrll
 
 rlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrll
 ### As Seen/Heard In/On...
-+ [81Sixed Productions IG](https://www.instagram.com/p/CNQ18AphVRa/)
-+ [QuadCities.com Podcast](https://www.quadcities.com/shows/qcuncut/qc-uncut-chicago-taysha-music-teacher-journalist-artist-episode-102/)
-+ [KIMT](https://www.kimt.com/content/video/574046572.html)
-+ [KIMT](https://www.kimt.com/content/news/Activist-raises-awareness-about-Chauvins-trial-asks-community-to-pay-attention-574043291.html)
-+ [The Neighborhood Reporter](https://www.instagram.com/tv/CMxyW0PnRu0/?igshid=50kcygu1w3p4)
-+ [CBS/WCCO Minnesota](https://minnesota.cbslocal.com/video/5413967-messages-of-hope-at-wheels-of-justice-art-installation/)
-+ [Washington Post](https://www.washingtonpost.com/politics/2021/02/04/virginia-may-abolish-death-penalty-theres-racist-history-why-few-jurisdictions-use-it-most/)
-+ [Washington Post](https://www.washingtonpost.com/opinions/the-death-penalty-is-in-the-death-throes/2021/02/05/e332c23e-67cb-11eb-8c64-9595888caa15_story.html)
-+ [The Guardian](https://www.theguardian.com/us-news/2021/jan/23/biden-democrats-death-row-sentences-prisoner)
 + [#NashvilleRecoveryTour](https://www.instagram.com/p/CDmrIOYgICQ/)
-+ [#VisualBlackJustice Nashville Tour Stop](https://www.instagram.com/p/CM9-mYcH9yR/)
-+ [Dallas Innovates](https://dallasinnovates.com/voices-chirag-gupta-reinventing-the-k-12-classroom-in-2020/)
++ [#VisualBlackJustice Nashville Tour Stop](https://www.instagram.com/p/CM9-mYcH9yR/) 
 + [2EZ Percussion](https://www.instagram.com/p/B_8XxIVgS5z/)
-+ [Pro Percussion](https://www.youtube.com/watch?v=FVFJuaCJlPQ)
-+ [Urban Dreams Music & Arts Program](https://www.instagram.com/p/CC7buRYnFuY/)
++ [81Sixed Productions IG](https://www.instagram.com/p/CNQ18AphVRa/)
++ [CBS/WCCO Minnesota](https://minnesota.cbslocal.com/video/5413967-messages-of-hope-at-wheels-of-justice-art-installation/)
++ [Dallas Innovates](https://dallasinnovates.com/voices-chirag-gupta-reinventing-the-k-12-classroom-in-2020/)
++ [KIMT](https://www.youtube.com/watch?v=9TqAzUpEmFU)
++ [KIMT](https://www.kimt.com/content/news/Activist-raises-awareness-about-Chauvins-trial-asks-community-to-pay-attention-574043291.html)
 + [Pan African Connection Drum Circle](https://www.instagram.com/tv/CI0s2uGl4iZ/)
++ [Pro Percussion](https://www.youtube.com/watch?v=FVFJuaCJlPQ)
++ [QuadCities.com Podcast](https://www.quadcities.com/shows/qcuncut/qc-uncut-chicago-taysha-music-teacher-journalist-artist-episode-102/)
 + [The Hoop Bus x R(evolutionary) Beats](https://www.instagram.com/p/CET3UexH8ll/)
 + [The Clubfoot Club](https://clubfootclub.org/stories/bilateral-clubfoot-born-1989/)
-+ [Wild Hunt](https://wildhunt.org/2021/07/when-hate-comes-to-town-pagans-stand-up-to-protest.html)
++ [The Guardian](https://www.theguardian.com/us-news/2021/jan/23/biden-democrats-death-row-sentences-prisoner)
++ [The Neighborhood Reporter](https://www.instagram.com/tv/CMxyW0PnRu0/?igshid=50kcygu1w3p4)
++ [The Wild Hunt](https://wildhunt.org/2021/07/when-hate-comes-to-town-pagans-stand-up-to-protest.html)
++ [Urban Dreams Music & Arts Program](https://www.instagram.com/p/CC7buRYnFuY/)
++ [Washington Post](https://www.washingtonpost.com/politics/2021/02/04/virginia-may-abolish-death-penalty-theres-racist-history-why-few-jurisdictions-use-it-most/)
++ [Washington Post](https://www.washingtonpost.com/opinions/the-death-penalty-is-in-the-death-throes/2021/02/05/e332c23e-67cb-11eb-8c64-9595888caa15_story.html)
+
+
 
 rlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrll
 ### Percussion + Music
@@ -88,14 +90,13 @@ I started studying music in 2001 as a percussionist in the school concert band, 
 
 
 Lessons/Teaching: [DM me](https://www.instagram.com/snares_on/) for drumset / snare drum private lesson rates and availability. I also teach a basic course on how to read and write music. Previously I have worked with: 
-+ South Oak Cliff High School Drumline (K. Clarke)
-+ Townview High School Drumline (J. Walker)
++ Big D Drumline Camp @ Townview High School (J. Walker)  
 + The Greenhill School's Hornet Drumline (B. Donnell)
-+ Plano East Sr High School Drumline (J. Brennan)
-+ Williams Jr High School Drumline (S. Gladney)
++ Townview High School Drumline (J. Walker)
 + McMillen Jr High School Drumline (J. Brennan)
-+ Big D Virtual Jazz Camp (J. Walker)
-+ Big D Drumline Camp (J. Walker) 
++ Plano East Sr High School Drumline (J. Brennan)
++ South Oak Cliff High School Drumline (K. Clarke)
++ Williams Jr High School Drumline (S. Gladney)
 + Urban Dreams Music and Arts Program (D. Johnson)
 + Yamaha Sounds of Summer Program (J. Brennan)
 
