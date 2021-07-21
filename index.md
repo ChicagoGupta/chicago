@@ -38,7 +38,6 @@ rlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrll
 ### Cop Watch
 + [Capital Transparency YouTube Channel](https://www.youtube.com/channel/UCETyrq7Sk-U7hSoSIbrRIcQ)
 + [Emporia Kansas Cop Block](https://www.youtube.com/channel/UCaWSjKF3N9EE3w-cWq9Q27Q)
-+ currently challenging an "Impeding Traffic" citation for stopping to ask if I could [film police] while they were arresting a black man in Dallas TX
 
 
 rlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrll
