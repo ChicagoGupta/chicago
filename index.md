@@ -39,6 +39,7 @@ rlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrll
 ### Cop Watch
 + [Capital Transparency YouTube Channel](https://www.youtube.com/channel/UCETyrq7Sk-U7hSoSIbrRIcQ)
 + [Emporia Kansas Cop Block](https://www.youtube.com/channel/UCaWSjKF3N9EE3w-cWq9Q27Q)
++ [GTAG UPOS](https://www.youtube.com/channel/UCXqf13CU6A29Jm_v5FbbRvA)
 
 
 rlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrll
@@ -68,7 +69,7 @@ rlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrll
 rlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrll
 ### Percussion + Music
 
-I started studying music in 2001 as a percussionist in the school concert band, and also was occasionally selected to play with the school choir and orchestra. My teachers were Don Kitchens, [Lori Peel](https://www.turrentinejacksonmorrow.com/obituaries/lori-peel-42317), Josh Schusterman, Christopher Vigneron, LaRae Baker Duff, Glenn Lambert, James Hannah, Matthew Weyer, Brett Deptula, Chris E (guitar), Holly Pyle (voice) [@herjerper](https://www.tiktok.com/@herjerper?), and Justin Copeland (trumpet). I have been co-hosting open jam sessions with professional musicians for many years, and these are some of the artists that I have collaborated with: 
+I started studying music in the school concert band, and also was occasionally selected to play with the school choir and orchestra. My teachers were Don Kitchens, [Lori Peel](https://www.turrentinejacksonmorrow.com/obituaries/lori-peel-42317), Josh Schusterman, Christopher Vigneron, LaRae Baker Duff, Glenn Lambert, James Hannah, Matthew Weyer, Brett Deptula, Chris E (guitar), Holly Pyle (voice) [@herjerper](https://www.tiktok.com/@herjerper?), and Justin Copeland (trumpet). I have been co-hosting open jam sessions with professional musicians for many years, and these are some of the artists that I have collaborated with: 
 
 
 + [Canned Sushi](https://www.instagram.com/sushi_in_a_can/)
@@ -89,7 +90,7 @@ I started studying music in 2001 as a percussionist in the school concert band, 
 + [tvshrine](https://www.instagram.com/tvshrine/)
 
 
-Lessons/Teaching: [DM me](https://www.instagram.com/snares_on/) for drumset / snare drum private lesson rates and availability. I also teach a basic course on how to read and write music. Previously I have worked with: 
+Lessons/Teaching: [DM me](https://www.instagram.com/snares_on/) for drumset / snare drum private lesson rates and availability. I also teach a basic course on music literacy (how to read and write music using classical Western notation). Previously I have worked with: 
 + Big D Drumline Camp @ Townview High School (J. Walker)  
 + The Greenhill School's Hornet Drumline (B. Donnell)
 + Townview High School Drumline (J. Walker)
