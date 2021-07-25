@@ -90,7 +90,7 @@ I started studying music in the school concert band, and also was occasionally s
 + [tvshrine](https://www.instagram.com/tvshrine/)
 
 
-Lessons/Teaching: [DM me](https://www.instagram.com/snares_on/) for drumset / snare drum private lesson rates and availability. I also teach a basic course on music literacy (how to read and write music using classical Western notation). Previously I have worked with: 
+Lessons/Teaching: [Contact me](https://dallas.craigslist.org/dal/lss/d/dallas-learn-how-to-read-music/7352007649.html) for drumset / snare drum private lesson rates and availability. I also teach a basic course on music literacy (how to read and write music using classical Western notation). Previously I have worked with: 
 + Big D Drumline Camp @ Townview High School (J. Walker)  
 + The Greenhill School's Hornet Drumline (B. Donnell)
 + Townview High School Drumline (J. Walker)
