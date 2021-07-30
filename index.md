@@ -1,7 +1,7 @@
 ## Music Teacher / Journalist / Artist 
 
 [media](/media.html)
-[mutual aid]()
+[mutual aid](/mutualaid.md)
 [police violence]()
 [prison violence]()
 [state violence]()
