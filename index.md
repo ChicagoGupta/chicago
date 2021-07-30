@@ -1,6 +1,6 @@
 ## Music Teacher / Journalist / Artist 
 
-[media test](chicagogupta.com/media)
+[media test](/media.html)
 
 Latest Music: [Who's Jeff?](https://soundcloud.com/user-564203548/whos-jeff)
 
