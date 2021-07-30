@@ -1,13 +1,13 @@
 ## Music Teacher / Journalist / Artist 
 
-[media](/media.md)
-[mutual aid](/mutualaid.md)
-[police violence]()
-[prison violence]()
-[state violence]()
-[sar efforts]()
-[cop watch]()
-[projects]()
+[media](/media.html)
+[mutual aid](/mutualaid.html)
+[police violence](/acab.html)
+[prison violence](/prison.html)
+[state violence](/deathrow.html)
+[sar efforts](/sar.html)
+[cop watch](/fuck12.html)
+[projects](/projex.html)
 
 Latest Music: [Who's Jeff?](https://soundcloud.com/user-564203548/whos-jeff)
 
