@@ -1,3 +1,3 @@
 test
 
-[home](chicagogupta.com)
+[home](/)
