@@ -1,5 +1,7 @@
 ## Music Teacher / Journalist / Artist 
 
+[media test](chicagogupta.com/media)
+
 Latest Music: [Who's Jeff?](https://soundcloud.com/user-564203548/whos-jeff)
 
 Latest Article: [interdependence](https://chicagogupta.medium.com/interdependence-955a475f322a)
