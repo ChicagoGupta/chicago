@@ -16,7 +16,7 @@
 
 [drums](rlrrlrll.html)
 
-[projects](/projex.html)
+[projects](/art.html)
 
 [writing](writings.html)
 
