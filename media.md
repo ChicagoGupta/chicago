@@ -1,8 +1,6 @@
 
-- red
-+ green
-! orange
-# gray
+! orange !
+
 
 [home](/)
 
