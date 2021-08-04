@@ -6,7 +6,7 @@
 
 [police violence](/acab.html)
 
-[prison violence](/prison.html)
+[prison violence](/trinagarnett.html)
 
 [state violence](/deathrow.html)
 
