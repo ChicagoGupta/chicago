@@ -12,19 +12,13 @@
 
 [sar efforts](/protectblackwomen.html)
 
-[cop watch](/fuck12.html)
+[cop watch](/filmthepolice.html)
 
 [projects](/projex.html)
 
 Latest Music: [Who's Jeff?](https://soundcloud.com/user-564203548/whos-jeff)
 
 Latest Article: [interdependence](https://chicagogupta.medium.com/interdependence-955a475f322a)
-
-rlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrll
-### Cop Watch
-+ [Capital Transparency YouTube Channel](https://www.youtube.com/channel/UCETyrq7Sk-U7hSoSIbrRIcQ)
-+ [Emporia Kansas Cop Block](https://www.youtube.com/channel/UCaWSjKF3N9EE3w-cWq9Q27Q)
-+ [GTAG UPOS](https://www.youtube.com/channel/UCXqf13CU6A29Jm_v5FbbRvA)
 
 
 rlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrll
