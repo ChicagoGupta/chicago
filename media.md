@@ -1,6 +1,4 @@
 
-! orange !
-
 
 [home](/)
 
