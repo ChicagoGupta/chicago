@@ -20,4 +20,3 @@
 
 [writing](writings.html)
 
-Latest Article: [interdependence](https://chicagogupta.medium.com/interdependence-955a475f322a)
