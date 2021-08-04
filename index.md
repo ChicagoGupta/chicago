@@ -21,11 +21,6 @@ Latest Music: [Who's Jeff?](https://soundcloud.com/user-564203548/whos-jeff)
 Latest Article: [interdependence](https://chicagogupta.medium.com/interdependence-955a475f322a)
 
 rlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrll
-### SAR Efforts 
-+ Google "Saniyya Dennis" -- she went missing from Univ of Buffalo since Apr 24 2021
-
-
-rlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrll
 ### Cop Watch
 + [Capital Transparency YouTube Channel](https://www.youtube.com/channel/UCETyrq7Sk-U7hSoSIbrRIcQ)
 + [Emporia Kansas Cop Block](https://www.youtube.com/channel/UCaWSjKF3N9EE3w-cWq9Q27Q)
