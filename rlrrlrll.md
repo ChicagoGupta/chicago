@@ -3,6 +3,8 @@
 rlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrll
 ### Percussion + Music
 
+Latest Music: [Who's Jeff?](https://soundcloud.com/user-564203548/whos-jeff)
+
 I started studying music in the school concert band, and also was occasionally selected to play with the school choir and orchestra. My teachers were Don Kitchens, [Lori Peel](https://www.turrentinejacksonmorrow.com/obituaries/lori-peel-42317), Josh Schusterman, Christopher Vigneron, LaRae Baker Duff, Glenn Lambert, James Hannah, Matthew Weyer, Brett Deptula, Chris E (guitar), Holly Pyle (voice) [@herjerper](https://www.tiktok.com/@herjerper?), and Justin Copeland (trumpet). I have been co-hosting open jam sessions with professional musicians for many years, and these are some of the artists that I have collaborated with: 
 
 
