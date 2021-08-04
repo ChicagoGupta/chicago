@@ -8,7 +8,7 @@
 
 [prison violence](/trinagarnett.html)
 
-[state violence](/deathrow.html)
+[state violence](/stopthesweeps.html)
 
 [sar efforts](/sar.html)
 
@@ -19,11 +19,6 @@
 Latest Music: [Who's Jeff?](https://soundcloud.com/user-564203548/whos-jeff)
 
 Latest Article: [interdependence](https://chicagogupta.medium.com/interdependence-955a475f322a)
-
-rlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrll
-### State Violence
-+ Google "Scheduled Executions"
-
 
 rlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrll
 ### SAR Efforts 
