@@ -12,6 +12,7 @@
 + [Dallas Innovates](https://dallasinnovates.com/voices-chirag-gupta-reinventing-the-k-12-classroom-in-2020/)
 + [KIMT](https://www.youtube.com/watch?v=9TqAzUpEmFU)
 + [KIMT](https://www.kimt.com/content/news/Activist-raises-awareness-about-Chauvins-trial-asks-community-to-pay-attention-574043291.html)
++ [Mustang Business Journal - page 20](https://issuu.com/mustang.business.journal/docs/volume_ii_issue_iv_final)
 + [Pan African Connection Drum Circle](https://www.instagram.com/tv/CI0s2uGl4iZ/)
 + [Pro Percussion](https://www.youtube.com/watch?v=FVFJuaCJlPQ)
 + [QuadCities.com Podcast](https://www.quadcities.com/shows/qcuncut/qc-uncut-chicago-taysha-music-teacher-journalist-artist-episode-102/)
