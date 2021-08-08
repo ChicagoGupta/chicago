@@ -20,3 +20,4 @@
 
 [writing](writings.html)
 
+[people](/people.html)
