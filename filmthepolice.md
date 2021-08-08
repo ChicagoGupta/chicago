@@ -6,6 +6,6 @@
 + [GTAG UPOS](https://www.youtube.com/channel/UCXqf13CU6A29Jm_v5FbbRvA)
 
 ## resources
-[website](dontcallthepolice.com)
+[don't call the police](dontcallthepolice.com)
 
 [home](/)
