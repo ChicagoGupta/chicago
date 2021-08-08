@@ -1,5 +1,8 @@
 [home](/)
 
+### Data Projex
++ [out of state](/outofstate.html)
+
 ### Art Projex
 
 + Art Installations
@@ -11,7 +14,7 @@
 + + [黑人跨性别的命也是命 T-shirt Design](https://carryonthreads.com/product/black-trans-lives-matter-mens-heavyweight-tee/)
 
 rlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrllrlrrlrll
-### Love Thy Neighbor
+### Peace Projex
 
 In 2019 I collaborated with K-12 teachers around the world on an international peace project called Love Thy Neighbor where school children exchange handwritten letters with school children in a neighboring country. This was done by developing lesson plans for English teachers to use in K-12 classroom settings.  [The project](https://www.facebook.com/walnutedu/posts/2436345716437948) was with K-12 students from Walnut School (Pune, India) and NJV School (Karachi, Pakistan). Special thanks to [Uzair Qarni](https://www.linkedin.com/public-profile/in/uqarni?) from Nativ Learning for being an early collaborator for this project.
 RLRRLRLLRLRRLRLLRLRRLRLLRLRRLRLLRLRRLRLLRLRRLRLLRLRRLRLLRLRRLRLL
