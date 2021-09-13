@@ -1,4 +1,4 @@
-## mississipi rainbow
+## mississippi rainbow
 
 [media](/media.html)
 
