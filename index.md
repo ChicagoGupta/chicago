@@ -1,5 +1,7 @@
 ## Unforced Errors
 
+[episode 1](https://www.youtube.com/watch?v=orHMlMbycMc)
+
 [media](/media.html)
 
 [mutual aid](/mutualaid.html)
