@@ -2,6 +2,10 @@
 
 [episode 1](https://www.youtube.com/watch?v=orHMlMbycMc)
 
+[episode 2](https://www.youtube.com/watch?v=h8BwJ1WRLHM)
+
+# resources
+
 [media](/media.html)
 
 [mutual aid](/mutualaid.html)
