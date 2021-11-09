@@ -6,6 +6,8 @@
 
 # resources
 
+[newsletter](https://tinyletter.com/chicagogupta)
+
 [media](/media.html)
 
 [mutual aid](/mutualaid.html)
