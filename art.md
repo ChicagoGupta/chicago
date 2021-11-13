@@ -5,6 +5,10 @@
 
 ### Art Projex
 
++ sharpie drawings
+
+![drawing](/IMG_2689.JPG "sharpie")
+
 + Art Installations
 + + [Daunte Wright](https://www.instagram.com/p/CO1PbDiggfo/)
 + + [ice drawing](https://www.instagram.com/p/CKJpWDvnD9y/)
