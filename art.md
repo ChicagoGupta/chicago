@@ -4,7 +4,9 @@
 
 ### Art Projex
 
-+ sharpie drawings (now available as stickers for $1 each)
++ Stickers
+"Union & Intersection" is a series of sharpie drawings made by tracing a guitar pick (available as stickers for $1 each)
+
 ![drawing](/guitarpick3.png "sharpie")
 ![drawing](/IMG_2689.JPG "sharpie")
 ![drawing](/IMG_2690.JPG "sharpie")
@@ -13,8 +15,6 @@
 ![drawing](/guitarpick2.JPG "sharpie")
 ![drawing](/guitarpick4.JPG "sharpie")
 ![drawing](/guitarpick5.JPG "sharpie")
-
-![drawing](/guitarpick3.JPG "sharpie")
 
 
 + Art Installations
