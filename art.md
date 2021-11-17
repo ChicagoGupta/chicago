@@ -8,6 +8,7 @@
 
 ![drawing](/IMG_2689.JPG "sharpie")
 ![drawing](/IMG_2690.JPG "sharpie")
+![drawing](/guitarpick.JPG "sharpie")
 ![drawing](/guitarpick1.JPG "sharpie")
 ![drawing](/guitarpick2.JPG "sharpie")
 ![drawing](/guitarpick3.JPG "sharpie")
