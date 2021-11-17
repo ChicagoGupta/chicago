@@ -4,11 +4,16 @@
 
 ### Art Projex
 
-+ sharpie drawings
++ sharpie drawings (now available as stickers for $1 each)
 
 ![drawing](/IMG_2689.JPG "sharpie")
-![drawing](/RenderedImage.JPG "sharpie")
 ![drawing](/IMG_2690.JPG "sharpie")
+![drawing](/guitar pick 1.JPG "sharpie")
+![drawing](/guitar pick 2.JPG "sharpie")
+![drawing](/guitar pick 3.JPG "sharpie")
+![drawing](/guitar pick 4.JPG "sharpie")
+![drawing](/guitar pick 5.JPG "sharpie")
+![drawing](/guitar pick 6.JPG "sharpie")
 
 + Art Installations
 + + [Daunte Wright](https://www.instagram.com/p/CO1PbDiggfo/)
