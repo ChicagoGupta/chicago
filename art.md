@@ -5,7 +5,7 @@
 ### Art Projex
 
 + sharpie drawings (now available as stickers for $1 each)
-
+![drawing](/guitarpick3.JPG "sharpie")
 ![drawing](/IMG_2689.JPG "sharpie")
 ![drawing](/IMG_2690.JPG "sharpie")
 ![drawing](/guitarpick.JPG "sharpie")
