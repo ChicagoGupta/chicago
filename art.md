@@ -14,7 +14,7 @@
 ![drawing](/guitarpick3.JPG "sharpie")
 ![drawing](/guitarpick4.JPG "sharpie")
 ![drawing](/guitarpick5.JPG "sharpie")
-![drawing](/guitarpick6.JPG "sharpie")
+
 
 + Art Installations
 + + [Daunte Wright](https://www.instagram.com/p/CO1PbDiggfo/)
