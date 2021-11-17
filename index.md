@@ -4,6 +4,8 @@
 
 [episode 2](https://www.youtube.com/watch?v=h8BwJ1WRLHM)
 
+[episode 3](https://www.youtube.com/watch?v=qQtY0UvVRsQ)
+
 # resources
 
 [newsletter](https://tinyletter.com/chicagogupta)
