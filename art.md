@@ -11,9 +11,10 @@
 ![drawing](/guitarpick.JPG "sharpie")
 ![drawing](/guitarpick1.JPG "sharpie")
 ![drawing](/guitarpick2.JPG "sharpie")
-![drawing](/guitarpick3.JPG "sharpie")
 ![drawing](/guitarpick4.JPG "sharpie")
 ![drawing](/guitarpick5.JPG "sharpie")
+
+![drawing](/guitarpick3.JPG "sharpie")
 
 
 + Art Installations
