@@ -10,6 +10,8 @@ Feb 16th-23rd Louisville Kentucky at the Roots 101 African American Museum (http
 
 Feb 25th-26th Greensboro, North Carolina (where the DA works) for Fred Cox Jr. Connect with PRESSURE for more info.
 
+March 2022 (TBD) St Paul Minnesota for verdict day in Federal trial against the three MPD officers who assisted Derek Chauvin in murdering George Floyd on May 25, 2020.
+
 May 2022 (TBD) Mississippi car caravan being organized for La'Mello Parker. Contact Mississippi Black Lives Matter for more info.
 
 June 18th Washington D.C. for the Poor People's Campaign
