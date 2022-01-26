@@ -36,6 +36,9 @@ Jason H sent in this article regarding Fred Cox Jr: https://triad-city-beat.com/
 
 Shannon has a plant store and will send out seed starter packet for community gardens upon request to support food justice community projects. 
 
+Ash has a online form where you can type in the details of the injustice going on in your community and then she can do more investigating and provide coverage on social media and live boots otg: 
+Link: https://docs.google.com/forms/d/e/1FAIpQLScgkU6qfr5_Vrm_IUxltdVt2oEostBensqZrZmcbbV3xV0EMA/viewform
+
 ### Perspectives from around the country:
 
 Indianapolis Indiana: niko says it is politcally tepid...BLM has been hijacked by liberals...The Indianapolis mayor is upping the funding for the police and sheriff's department. Gentrification and displacement... Liberals are very dangerous. bad press for the developers... Idea for community fridges...repurpose old newspaper boxes by painting them and putting food in them. 
